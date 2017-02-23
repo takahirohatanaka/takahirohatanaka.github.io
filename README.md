@@ -1,1 +1,0 @@
-# takahirohatanaka.github.io
